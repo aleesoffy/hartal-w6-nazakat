@@ -1,0 +1,1 @@
+# hartal-w6-nazakat
